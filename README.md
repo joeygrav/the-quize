@@ -1,1 +1,1 @@
-# the-quize
+i learnd a lot today i learned about Photoshop: How To Cut Out an Image using selection tool - Remove and Delete a Background and how to color the backgrounds and most important is how to use the layers.. and i worked more on other pic's like sunsets and pic of me but i didn't save them i tried to add filters to them and make them look sharper!
